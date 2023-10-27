@@ -1,4 +1,2 @@
 # test
-puto el que lee
-ah putito seguis leyendo
-A te re cabe el chori si sueguis leyendo
+Soy de leo, aparentemente ascendente en leo. Pero me rijo mas por el calendario maya, soy perro solar.
